@@ -1,2 +1,2 @@
 # Denisse-RiveraCruz
-Traing self my self as India
+Traing you self my self as India
